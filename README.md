@@ -1,3 +1,4 @@
-![image](https://github.com/AbdelTheGoat/Wallpaper/assets/155133525/ab727cb4-8dc4-4ead-af6d-6602b3fc4e51)
+![image](https://github.com/AbdelTheGoat/Wallpaper/assets/155133525/67cc547e-1e92-4407-8e60-904a24fcec4b)
+
 
 
