@@ -1,2 +1,1 @@
-![image](https://github.com/AbdelTheGoat/Wallpaper/assets/155133525/b2294545-8502-4132-9ea1-30e73cf2e33f)
-
+![image](https://github.com/AbdelTheGoat/Wallpaper/assets/155133525/4c0d9c32-1a9d-4648-a689-d8491d7fe420)
